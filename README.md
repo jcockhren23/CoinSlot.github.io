@@ -1,0 +1,1 @@
+# CoinSlot.github.io
